@@ -1,3 +1,1 @@
 This file is created by habakan laptop.
-
-This part was created from Kimura.
